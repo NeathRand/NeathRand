@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with back-end coding
 
-- 📫 How to reach me ** __ **
+- 📫 How to reach me ** https://www.linkedin.com/in/nathan-d-2877722ab/ **
 
 - 📄 Know about my experiences **__**
 
