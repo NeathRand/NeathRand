@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences **__**
 
-- 📚 Education Currently a Business Technology Student Student minoring in Computer Science
+- 📚 Education Currently a Business Technology Management Student minoring in Computer Science
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
